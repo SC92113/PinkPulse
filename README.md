@@ -11,3 +11,7 @@ https://github.com/SC92113/PinkPulse/assets/173239973/cee61d80-6093-4edf-8c5d-40
 👀 Website quick link
 
 https://github.com/SC92113/PinkPulse/assets/173239973/2d92e18e-bd5f-4ed2-a4c1-da6e3d9f8d3c
+
+👀 Promo video quick link
+
+https://github.com/SC92113/PinkPulse/assets/173239973/73132d04-f78c-4d2d-b989-a42c4914c7c7
